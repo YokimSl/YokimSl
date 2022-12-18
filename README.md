@@ -3,7 +3,7 @@
 
 My name is Jhonnata Gomes Coelho I have 19 years old, I started programming at 17 years old, and I am from Brazil. 🇧🇷 
 
-If technologies don't stop evolving, I don't stop studying.rocket do not reverse🚀
+If technologies don't stop evolving, I don't stop studying rocket do not reverse🚀
 
 - 📌 From São Raimundo das Mangabeiras - MA
 - 👨‍💻 Front-End Developer
